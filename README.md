@@ -1,1 +1,1 @@
-https://s1ronw.github.io/coursework/ - coursework
+https://s1ronw.github.io/coursework/coursework - coursework
